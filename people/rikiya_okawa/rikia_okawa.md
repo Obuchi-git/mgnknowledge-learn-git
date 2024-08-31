@@ -1,1 +1,0 @@
-rikiya_okawa

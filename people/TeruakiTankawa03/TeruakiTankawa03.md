@@ -1,1 +1,0 @@
-TeruakiTankawa03
